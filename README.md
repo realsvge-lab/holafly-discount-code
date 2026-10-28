@@ -1,4 +1,4 @@
-# Holafly Discount Code [RUBE] – Save 5–10% on eSIM Plans (2026)
+# Holafly Discount Code 2026 [RUBE] – Save 5–10% on eSIM Plans in 2026
 
 Looking for a simple way to stay connected while traveling? **Holafly** provides eSIM plans for destinations worldwide, allowing travelers to access mobile data without relying on a physical SIM card. Eligible customers can try the **Holafly Discount Code RUBE** at checkout.
 
